@@ -17,7 +17,7 @@
 ---
 
 ### 📬 Reach Me:
-- 📧 Email: [youremail@example.com]
+- 📧 Email: [sonavdeep06@gmail.com]
 - 🔗 LinkedIn: [linkedin.com/in/sonavdeep-sharma-39a546320](https://www.linkedin.com/in/sonavdeep-sharma-39a546320)
 
 ---
